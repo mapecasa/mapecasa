@@ -23,7 +23,7 @@ BMF please. . .
 
 all / any pronouns 
 
-
+cudcomf, , pls c + h if u C me
 ﹏﹏﹏﹏﹏﹏﹏
 
 

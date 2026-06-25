@@ -1,5 +1,6 @@
 mapicc my chestplate ! 
 ## > looks like the infamous chestplate is gone ! ! 
+
 <img width="240" height="62" alt="Image" src="https://github.com/user-attachments/assets/5a9f7e13-e4ff-4102-aab6-b9a1073c1090" />
 ◡◡
 <img width="550" height="30" alt="Image" src="https://github.com/user-attachments/assets/08b31a8d-57ae-4efd-81f2-b0ab60845848" />
@@ -40,6 +41,11 @@ spoke fan, i love spoke he so awww
 
 
 rest in piece to my mapicc he got hit with a wind charge... 
+
+-----------
+You never cease to beat my expectations in the worst way because every plan I've had for you had relied on you having some shreds of empathy left but there's nothing behind those eyes.
+
+
 <img width="392" height="70" alt="Image" src="https://github.com/user-attachments/assets/ae7ba890-aeff-4fcf-8caa-376420509cad" />
 <img width="192" height="204" alt="Image" src="https://github.com/user-attachments/assets/2ac98844-da42-40b7-8d5b-06a6410685b1" />
 

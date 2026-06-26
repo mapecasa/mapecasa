@@ -36,6 +36,7 @@ cudcomf, , pls c + h if u C me
 
 i go by riced / Leo / spokitties
 
+<img width="800" height="17" alt="Image" src="https://github.com/user-attachments/assets/24a25dc4-91e6-49a5-a2e0-b1a464d395e0" />
 
 he / him, they / them pronouns preferred, though you can use anything
 

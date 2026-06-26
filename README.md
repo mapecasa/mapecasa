@@ -26,8 +26,8 @@ all / any pronouns
 
 cudcomf, , pls c + h if u C me
 
-﹏﹏﹏﹏﹏﹏﹏
 
+<img width="347" height="42" alt="Image" src="https://github.com/user-attachments/assets/9cb01933-f987-488c-8e43-9428e9580664" />
 
 <img width="268" height="21" alt="Image" src="https://github.com/user-attachments/assets/59798db3-66d3-4717-a53d-5ad50ec77969" />
 <img width="349" height="37" alt="Image" src="https://github.com/user-attachments/assets/52918024-c329-4382-a4ef-c71b0243150a" />

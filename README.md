@@ -1,6 +1,8 @@
+<img width="601" height="21" alt="Image" src="https://github.com/user-attachments/assets/12dc422d-2ff3-4d0d-aeb7-ea7863b6024f" />
 I am protecting the server, I am not protecting it from AshSwagg, I am not protecting it from the mafia, i am protecting it from YOU. 
 ↓↓
 <img width="1280" height="720" alt="Image" src="https://github.com/user-attachments/assets/7f63decc-574c-4c7b-945a-6ba08bda1cdd" />
+<img width="386" height="39" alt="Image" src="https://github.com/user-attachments/assets/cd2debc3-52fe-4a64-ab7b-46ee3d553988" />
 ## > looks like the infamous chestplate is gone ! ! 
 
 <img width="240" height="62" alt="Image" src="https://github.com/user-attachments/assets/5a9f7e13-e4ff-4102-aab6-b9a1073c1090" />

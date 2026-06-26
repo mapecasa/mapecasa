@@ -42,6 +42,7 @@ spoke fan, i love spoke he so awww <img width="56" height="56" alt="Image" src="
 
 rest in piece to my mapicc he got hit with a wind charge... 
 
+<img width="735" height="649" alt="Image" src="https://github.com/user-attachments/assets/50197412-4777-4aed-b2a0-0a749658f7e7" />
 -----------
 You never cease to beat my expectations in the worst way because every plan I've had for you had relied on you having some shreds of empathy left but there's nothing behind those eyes.
 

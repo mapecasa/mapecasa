@@ -44,6 +44,8 @@ he / him, they / them pronouns preferred, though you can use anything
 
 spoke fan, i love spoke he so awww <img width="56" height="56" alt="Image" src="https://github.com/user-attachments/assets/772ee758-d31e-4e58-a4a8-3d89a155aaee" />
 
+<img width="320" height="64" alt="1000001427" src="https://github.com/user-attachments/assets/274257c4-2154-42ee-addb-1669032c0381" />
+
 
 rest in piece to my mapicc he got hit with a wind charge... 
 
@@ -55,14 +57,17 @@ You never cease to beat my expectations in the worst way because every plan I've
 
 <img width="392" height="70" alt="Image" src="https://github.com/user-attachments/assets/ae7ba890-aeff-4fcf-8caa-376420509cad" />
 <img width="192" height="204" alt="Image" src="https://github.com/user-attachments/assets/2ac98844-da42-40b7-8d5b-06a6410685b1" />
-<img width="540" height="79" alt="Image" src="https://github.com/user-attachments/assets/99a52430-55d7-49d6-b7c7-9cf1c88c9038" />
+<img width="564" height="211" alt="1000001441" src="https://github.com/user-attachments/assets/307ba470-2fe4-4c0b-876a-00bc5baa4893" />
 
-$$\color{#d52954}{\textsf{mᥲ⍴іᥴᥴ}}\qquad$$
-$$\color{#d52954}{\textsf{ᥕᥲs sᥣᥲіᥒ ᑲᥡ s⍴᥆kᥱіsһᥱrᥱ}}\qquad$$
-$$\color{#d52954}{\textsf{mᥲ⍴іᥴᥴ ᥣᥱ𝖿𝗍 𝗍һᥱ gᥲmᥱ}}\qquad$$
+
+$$\color{#ac0000}{\textsf{mᥲ⍴іᥴᥴ}}\qquad$$
+$$\color{#ac0000}{\textsf{ᥕᥲs sᥣᥲіᥒ ᑲᥡ s⍴᥆kᥱіsһᥱrᥱ}}\qquad$$
+$$\color{#ac0000}{\textsf{mᥲ⍴іᥴᥴ ᥣᥱ𝖿𝗍 𝗍һᥱ gᥲmᥱ}}\qquad$$
 
 <img width="1472" height="1494" alt="1000001436" src="https://github.com/user-attachments/assets/47508b65-37db-46ea-b3d7-f78491ddf75a" />
+<img width="1200" height="328" alt="1000001440" src="https://github.com/user-attachments/assets/9d2c4abe-e4b4-40d5-a4a6-c1d9f7db2c43" />
 
 <img width="735" height="680" alt="1000001435" src="https://github.com/user-attachments/assets/d3e35fd9-d272-4a5b-a810-68c5785770fe" />
  
-<img width="540" height="79" alt="Image" src="https://github.com/user-attachments/assets/d2f45b86-7f3f-4de9-8b58-2a922ab12a33" />
+<img width="564" height="211" alt="1000001442" src="https://github.com/user-attachments/assets/283a7f8c-fa87-42ca-8eeb-dc042db1124a" />
+

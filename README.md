@@ -60,7 +60,9 @@ You never cease to beat my expectations in the worst way because every plan I've
 $$\color{#d52954}{\textsf{mᥲ⍴іᥴᥴ}}\qquad$$
 $$\color{#d52954}{\textsf{ᥕᥲs sᥣᥲіᥒ ᑲᥡ s⍴᥆kᥱіsһᥱrᥱ}}\qquad$$
 $$\color{#d52954}{\textsf{mᥲ⍴іᥴᥴ ᥣᥱ𝖿𝗍 𝗍һᥱ gᥲmᥱ}}\qquad$$
-<img width="1472" height="1494" alt="1000001436" src="https://github.com/user-attachments/assets/47508b65-37db-46ea-b3d7-f78491ddf75a" />
-<img width="1472" height="1494" alt="1000001436" src="https://github.com/user-attachments/assets/3d81eb8e-9521-42ad-9d71-7ccee5eabfa3" />
 
+<img width="1472" height="1494" alt="1000001436" src="https://github.com/user-attachments/assets/47508b65-37db-46ea-b3d7-f78491ddf75a" />
+
+<img width="735" height="680" alt="1000001435" src="https://github.com/user-attachments/assets/d3e35fd9-d272-4a5b-a810-68c5785770fe" />
+ 
 <img width="540" height="79" alt="Image" src="https://github.com/user-attachments/assets/d2f45b86-7f3f-4de9-8b58-2a922ab12a33" />
